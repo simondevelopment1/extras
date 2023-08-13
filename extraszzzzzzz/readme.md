@@ -5,7 +5,7 @@ Hi! thankyou for downloading this, this is just a basic script/s to start up you
 ps: ill release more scripts soon!:)
 
 pps: if you want to take credit on the script here or you want me to delete it just dm me a my discord:)
-sayyymonnn#123
+||simon_9984||
 
 - SCRIPTS COMPILED:
 
